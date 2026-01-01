@@ -1,4 +1,4 @@
-### Hi there 👋, I am Muhammaf Rifki.
+### Hi there 👋, I am Muhammad Rifki.
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/muhammad-rifki-aulia/) ku ya.
 
 <!--
