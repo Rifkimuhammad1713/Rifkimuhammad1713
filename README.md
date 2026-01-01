@@ -1,5 +1,5 @@
 ### Hi there 👋, I am Muhammaf Rifki./
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/muhammad-rifki-aulia/) ku ya.
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/muhammad-rifki-aulia/) ku ya./
 I LOVE YOU ‪‪❤︎
 <!--
 **Rifkimuhammad1713/Rifkimuhammad1713** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
